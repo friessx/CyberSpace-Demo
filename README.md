@@ -4,6 +4,6 @@ The game ends once you kill the final boss.
 Credits:
 Most things - me
 Some audio from Pixabay
-Game name - My friend Yt - Mountpepper
+Game name - My friend Yt - Mountpepper Download here --->
 
 MANY THANKS TO GamesPlusJames on YT!!!
